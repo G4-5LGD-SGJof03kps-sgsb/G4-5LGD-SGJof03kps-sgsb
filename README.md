@@ -1,6 +1,12 @@
+<div align="center">
+
+[pronounc.cc](https://pronouns.cc/@soullhntwzz) + [just wanted to put smth](https://on.soundcloud.com/3ofj4)
 
 <p align="center">
-<img src="https://64.media.tumblr.com/42c7958a5a5e7b2ed4bb5a96f89ec980/8f79d9f8d9f79809-35/s250x400/4751942882b49878baf29d257ada901c5ce40fd6.gifv"> <img src="https://64.media.tumblr.com/59e3290558eae392f4b54c17e4bbc258/8f79d9f8d9f79809-8d/s250x400/ba1ebf90ef139d8b8bcc4e0e527b6bfab585eafb.gifv"> <img src="https://64.media.tumblr.com/57e34141b0907673a8e3aca9ded0a937/0b03cbf48f56038c-01/s250x400/f4a75c015ed5eaeb3f32519902affee75a9731d8.gifv">
+<img src="https://64.media.tumblr.com/42c7958a5a5e7b2ed4bb5a96f89ec980/8f79d9f8d9f79809-35/s250x400/4751942882b49878baf29d257ada901c5ce40fd6.gifv"> <img src="https://64.media.tumblr.com/57e34141b0907673a8e3aca9ded0a937/0b03cbf48f56038c-01/s250x400/f4a75c015ed5eaeb3f32519902affee75a9731d8.gifv">
+
+<p align="center"> <img src=https://static.wikia.nocookie.net/omniscient-readers-viewpoint/images/d/dd/Hs_2_tai_art.png/revision/latest?cb=20241029205229<width="250" height="250"> <img src=https://static.wikia.nocookie.net/omniscient-readers-viewpoint/images/c/cf/Ms_2_tai_art.png/revision/latest?cb=20241029205416<width="250" height="250">
+
 
 <p align="center"> <img src="https://media1.tenor.com/m/VrAd9NkxV74AAAAd/orv.gif"<width="100" height="100"> <img src="https://media1.tenor.com/m/WJJ04kd7RrsAAAAC/ivanluka-lukaivan.gif"<width="100" height="100"> <img src="https://media1.tenor.com/m/V9EXxf7NBqUAAAAd/angels-of-death-zack.gif"<width="100" height="100"> <img src="https://media1.tenor.com/m/Q8WiED0CxAcAAAAd/orv.gif"<width="100" height="100"> <img src="https://media1.tenor.com/m/JEdWMiXAYP0AAAAd/ivan-alien-stage.gif"<width="100" height="100"> 
 

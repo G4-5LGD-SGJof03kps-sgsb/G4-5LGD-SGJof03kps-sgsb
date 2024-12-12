@@ -1,5 +1,9 @@
 <div align="center">
 
+mika **or** misha
+
+not really a fan of normal and organized githubs it takes too much time and effort but people who r doing this yall are amazing
+
 [pronounc.cc](https://pronouns.cc/@soullhntwzz) + [just wanted to put smth](https://on.soundcloud.com/3ofj4)
 
 <p align="center"> <img src="https://64.media.tumblr.com/42c7958a5a5e7b2ed4bb5a96f89ec980/8f79d9f8d9f79809-35/s250x400/4751942882b49878baf29d257ada901c5ce40fd6.gifv"> <img src="https://64.media.tumblr.com/57e34141b0907673a8e3aca9ded0a937/0b03cbf48f56038c-01/s250x400/f4a75c015ed5eaeb3f32519902affee75a9731d8.gifv">

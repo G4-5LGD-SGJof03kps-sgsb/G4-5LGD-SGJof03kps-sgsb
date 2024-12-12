@@ -2,6 +2,8 @@
 
 mika **or** misha
 
+<div align="center"> <img src="https://64.media.tumblr.com/071707ebf700f77c601f7083553abdfd/fe138e0fa20372c4-e7/s2048x3072/30d9ca87bbd42f223ee64959db2e988e64cf366e.pnj"height="200" />
+ 
 not really a fan of normal and organized githubs it takes too much time and effort but people who r doing this yall are amazing
 
 [pronounc.cc](https://pronouns.cc/@soullhntwzz) + [just wanted to put smth](https://on.soundcloud.com/3ofj4)

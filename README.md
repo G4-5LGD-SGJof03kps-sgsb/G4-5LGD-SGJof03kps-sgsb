@@ -2,11 +2,10 @@
 
 [pronounc.cc](https://pronouns.cc/@soullhntwzz) + [just wanted to put smth](https://on.soundcloud.com/3ofj4)
 
-<p align="center">
-<img src="https://64.media.tumblr.com/42c7958a5a5e7b2ed4bb5a96f89ec980/8f79d9f8d9f79809-35/s250x400/4751942882b49878baf29d257ada901c5ce40fd6.gifv"> <img src="https://64.media.tumblr.com/57e34141b0907673a8e3aca9ded0a937/0b03cbf48f56038c-01/s250x400/f4a75c015ed5eaeb3f32519902affee75a9731d8.gifv">
+<p align="center"> <img src="https://64.media.tumblr.com/42c7958a5a5e7b2ed4bb5a96f89ec980/8f79d9f8d9f79809-35/s250x400/4751942882b49878baf29d257ada901c5ce40fd6.gifv"> <img src="https://64.media.tumblr.com/57e34141b0907673a8e3aca9ded0a937/0b03cbf48f56038c-01/s250x400/f4a75c015ed5eaeb3f32519902affee75a9731d8.gifv">
 
-<p align="center"> <img src=https://static.wikia.nocookie.net/omniscient-readers-viewpoint/images/d/dd/Hs_2_tai_art.png/revision/latest?cb=20241029205229<width="250" height="250"> <img src=https://static.wikia.nocookie.net/omniscient-readers-viewpoint/images/c/cf/Ms_2_tai_art.png/revision/latest?cb=20241029205416<width="250" height="250">
-
+<p align="center"> <img src="https://64.media.tumblr.com/f71ea97a278a41fdb9ae4a51145a564b/d320397939b22284-70/s1280x1920/7e8d11b54475fae24fce0a332c09b10cfcf5a676.jpg"height="200" /> <img src="https://64.media.tumblr.com/1ba7a8b9269c28f73ca8716d4301053c/d320397939b22284-4b/s1280x1920/57e20bb2b4b21e3918ea40fbbaa039ac894d6b8b.jpg"height="200" /> 
+ <img src="https://64.media.tumblr.com/2b4992445d9ed0647d45261d30d70010/d320397939b22284-34/s1280x1920/6ff52425276b1394b7a540045dd0e6bd9b68b1a7.jpg"height="200" /> <img src="https://64.media.tumblr.com/1685bde528030cbeab5b498b4d849530/d320397939b22284-9d/s1280x1920/30b67108036422561a6896eba5eb6fa9abce8142.jpg"height="200" />
 
 <p align="center"> <img src="https://media1.tenor.com/m/VrAd9NkxV74AAAAd/orv.gif"<width="100" height="100"> <img src="https://media1.tenor.com/m/WJJ04kd7RrsAAAAC/ivanluka-lukaivan.gif"<width="100" height="100"> <img src="https://media1.tenor.com/m/V9EXxf7NBqUAAAAd/angels-of-death-zack.gif"<width="100" height="100"> <img src="https://media1.tenor.com/m/Q8WiED0CxAcAAAAd/orv.gif"<width="100" height="100"> <img src="https://media1.tenor.com/m/JEdWMiXAYP0AAAAd/ivan-alien-stage.gif"<width="100" height="100"> 
 

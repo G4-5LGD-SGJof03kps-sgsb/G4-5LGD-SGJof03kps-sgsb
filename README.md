@@ -1,14 +1,26 @@
 <div align="center">
 
+![](https://komarev.com/ghpvc/?username=G4-5LGD-SGJof03kps-sgsb&color=grey&style=for-the-badge&label=:3&abbreviated=true)
+
 mika **or** misha
 
-<div align="center"> <img src="https://64.media.tumblr.com/071707ebf700f77c601f7083553abdfd/fe138e0fa20372c4-e7/s2048x3072/30d9ca87bbd42f223ee64959db2e988e64cf366e.pnj"height="200" />
+<p align="center"> <img src="https://64.media.tumblr.com/42c7958a5a5e7b2ed4bb5a96f89ec980/8f79d9f8d9f79809-35/s250x400/4751942882b49878baf29d257ada901c5ce40fd6.gifv"> <img src="https://64.media.tumblr.com/57e34141b0907673a8e3aca9ded0a937/0b03cbf48f56038c-01/s250x400/f4a75c015ed5eaeb3f32519902affee75a9731d8.gifv">
+
+<div align="center"> <img src="https://64.media.tumblr.com/071707ebf700f77c601f7083553abdfd/fe138e0fa20372c4-e7/s2048x3072/30d9ca87bbd42f223ee64959db2e988e64cf366e.pnj"height="200" /> <img src="https://64.media.tumblr.com/139be21f26ae0c988c76330586c6730e/df986b8ca25a40c2-96/s2048x3072/1db3ee2ee78ec2e9b85c0a0a7bce65fed7b2e147.jpg"height="200" > <img src="https://64.media.tumblr.com/553e1cc37d0243d92e6992cdb7117764/36215c8d255058cf-9b/s2048x3072/c7f68603e015c73cbefc6731df43c741e3ef2aeb.jpg"height="200" /> <img src="https://64.media.tumblr.com/21a784e65074f5705d2e9aed8f511c3f/8db109f1bc1a4757-19/s1280x1920/13ab7e70de325bdea39c92652e6c6cf832a792a7.pnj"height="200" /> <img src="https://64.media.tumblr.com/ca20cd42e1aec22bdf49c28ad01adae4/fca66ca3d2d70e05-f2/s1280x1920/5fbc3840efe9b21facbc573b7357548c27a02388.jpg"height="200" /> <img src="https://64.media.tumblr.com/aac92f16ed2016bc51f1b49d9726a484/fc3f31a325fbda80-dc/s2048x3072/140ab3f195c689673719de91083fbd511ef53cea.jpg"height="200" /> <img src="https://64.media.tumblr.com/7a2c79268aa0f475af5ac5d9a2a2a18c/fc2491ee91538f69-dc/s500x750/8434d6474bc4abeeadcf812353802ccea5ce78bd.pnj"height="200" />
  
 not really a fan of normal and organized githubs it takes too much time and effort but people who r doing this yall are amazing
 
-[pronounc.cc](https://pronouns.cc/@soullhntwzz) + [just wanted to put smth](https://on.soundcloud.com/3ofj4)
+[pronounc.cc](https://pronouns.cc/@soullhntwzz) + [cr](https://x.com/salaryman_28/status/1799468585833857173) [+](https://www.tumblr.com/wildrbst/738498042214465536/based-on-this-post) [+](https://www.tumblr.com/nanaparkerandtina/756911642145701888/well-i-finished-it-it-takes-8-hours-of-work-and) [+](https://www.tumblr.com/illeoust/752394057484009472) [+](https://www.tumblr.com/navitheonly/759966023901429760) [+](https://www.tumblr.com/seiseimaru/721675924052049920) [+](https://www.tumblr.com/aceofchairs/766604786431836160/its-dangerous-to-go-alone-take-this)
 
-<p align="center"> <img src="https://64.media.tumblr.com/42c7958a5a5e7b2ed4bb5a96f89ec980/8f79d9f8d9f79809-35/s250x400/4751942882b49878baf29d257ada901c5ce40fd6.gifv"> <img src="https://64.media.tumblr.com/57e34141b0907673a8e3aca9ded0a937/0b03cbf48f56038c-01/s250x400/f4a75c015ed5eaeb3f32519902affee75a9731d8.gifv">
+<div align="center"> <img src="https://64.media.tumblr.com/d0d637a5621d6e5fc18f62f19fe22241/54523fd7c8027d3c-0a/s2048x3072/f417e97725801a7882603a2b0874e60de98285d3.jpg"wigth="59" height="130" />
+
+<div align="center"> <img src="https://64.media.tumblr.com/50ac582dcbeb99e71c7f069b22bf69a8/e2f9a80a93a420ee-08/s500x750/12b9eb3918423dd992cb5b0f9c49794d6b6b6c10.pnj"height="95" />
+
+<div align="center"> MY WIFE
+
+<div align="center"> <img src="https://64.media.tumblr.com/d60438cdf8d313e50db3d18362c98d6f/1652b1bb1247a2ba-d7/s2048x3072/718def75d32e878e487a5e6a0aecbadb73066a38.jpg"height="200" /> <img src="https://64.media.tumblr.com/b48d836890bcca4c89872e96bfc5d190/5b0a5ad85a51406e-cc/s1280x1920/c80bab79e290391ef16b993713fb2155d062bcb9.jpg"height="200" /> <img src="https://64.media.tumblr.com/fcaa3b44ef75d8bc66b2d8488819d94b/efa7d0c29861f12c-ce/s2048x3072/1e36cc465db584510fbe652b8384db2679dbd93e.jpg"height="200" />
+
+<div align="center"> <img src="https://64.media.tumblr.com/50ac582dcbeb99e71c7f069b22bf69a8/e2f9a80a93a420ee-08/s500x750/12b9eb3918423dd992cb5b0f9c49794d6b6b6c10.pnj"height="95" />
 
 <p align="center"> <img src="https://64.media.tumblr.com/f71ea97a278a41fdb9ae4a51145a564b/d320397939b22284-70/s1280x1920/7e8d11b54475fae24fce0a332c09b10cfcf5a676.jpg"height="200" /> <img src="https://64.media.tumblr.com/1ba7a8b9269c28f73ca8716d4301053c/d320397939b22284-4b/s1280x1920/57e20bb2b4b21e3918ea40fbbaa039ac894d6b8b.jpg"height="200" /> 
  <img src="https://64.media.tumblr.com/2b4992445d9ed0647d45261d30d70010/d320397939b22284-34/s1280x1920/6ff52425276b1394b7a540045dd0e6bd9b68b1a7.jpg"height="200" /> <img src="https://64.media.tumblr.com/1685bde528030cbeab5b498b4d849530/d320397939b22284-9d/s1280x1920/30b67108036422561a6896eba5eb6fa9abce8142.jpg"height="200" />

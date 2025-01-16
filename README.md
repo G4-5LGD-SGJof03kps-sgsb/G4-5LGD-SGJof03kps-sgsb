@@ -2,8 +2,6 @@
 
 ![](https://komarev.com/ghpvc/?username=G4-5LGD-SGJof03kps-sgsb&color=grey&style=for-the-badge&label=:3&abbreviated=true)
 
-mika **or** misha check rentry
-
 <p align="center"> <img src="https://64.media.tumblr.com/42c7958a5a5e7b2ed4bb5a96f89ec980/8f79d9f8d9f79809-35/s250x400/4751942882b49878baf29d257ada901c5ce40fd6.gifv"> <img src="https://64.media.tumblr.com/57e34141b0907673a8e3aca9ded0a937/0b03cbf48f56038c-01/s250x400/f4a75c015ed5eaeb3f32519902affee75a9731d8.gifv">
 
 <div align="center"> <img src="https://img1.picmix.com/output/pic/normal/5/3/0/8/12338035_a351f.gif"height="200" /> <img src="https://64.media.tumblr.com/071707ebf700f77c601f7083553abdfd/fe138e0fa20372c4-e7/s2048x3072/30d9ca87bbd42f223ee64959db2e988e64cf366e.pnj"height="200" /> <img src="https://64.media.tumblr.com/139be21f26ae0c988c76330586c6730e/df986b8ca25a40c2-96/s2048x3072/1db3ee2ee78ec2e9b85c0a0a7bce65fed7b2e147.jpg"height="200" > <img src="https://64.media.tumblr.com/553e1cc37d0243d92e6992cdb7117764/36215c8d255058cf-9b/s2048x3072/c7f68603e015c73cbefc6731df43c741e3ef2aeb.jpg"height="200" /> <img src="https://64.media.tumblr.com/21a784e65074f5705d2e9aed8f511c3f/8db109f1bc1a4757-19/s1280x1920/13ab7e70de325bdea39c92652e6c6cf832a792a7.pnj"height="200" /> <img src="https://64.media.tumblr.com/ca20cd42e1aec22bdf49c28ad01adae4/fca66ca3d2d70e05-f2/s1280x1920/5fbc3840efe9b21facbc573b7357548c27a02388.jpg"height="200" /> <img src="https://64.media.tumblr.com/aac92f16ed2016bc51f1b49d9726a484/fc3f31a325fbda80-dc/s2048x3072/140ab3f195c689673719de91083fbd511ef53cea.jpg"height="200" /> <img src="https://64.media.tumblr.com/7a2c79268aa0f475af5ac5d9a2a2a18c/fc2491ee91538f69-dc/s500x750/8434d6474bc4abeeadcf812353802ccea5ce78bd.pnj"height="200" />

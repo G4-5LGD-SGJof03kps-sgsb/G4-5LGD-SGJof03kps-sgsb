@@ -1,3 +1,9 @@
+<p align="center"> <img src="https://64.media.tumblr.com/4bbb5a5b63dffe81914cabb09279cf38/b34f12202f578029-58/s1280x1920/cd66f398386cf4478a6d7734732e9d3bb149c010.jpg"height="185" > <img src="https://64.media.tumblr.com/ee9a9404deed09b5f05628bc564997fc/b34f12202f578029-b3/s1280x1920/3396edf1c20a18477d28fc3afe9b80b08ccd6e56.jpg"height="185" > <img src="https://64.media.tumblr.com/e996893b9205699cd6299df54ab633df/b34f12202f578029-c3/s1280x1920/13d456344028a38b223cce3bb76943dafefa3387.jpg"height="185" > <img src="https://64.media.tumblr.com/93d15f4b559e4b7d9f86abc9d260a063/b34f12202f578029-93/s1280x1920/ed77936f3e1e8290a856440ce25ea03ad668e5ce.jpg"height="185" >
+
+<div align="center">
+
+M[YRENTR](https://rentry.co/1usQ_99W9sum)Y & S[TRAWP](https://qwr999sfs.straw.page)AGE
+
 <div align="center">
 
 ![](https://komarev.com/ghpvc/?username=G4-5LGD-SGJof03kps-sgsb&color=grey&style=for-the-badge&label=:3&abbreviated=true)

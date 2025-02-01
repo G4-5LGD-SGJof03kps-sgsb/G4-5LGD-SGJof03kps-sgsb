@@ -2,7 +2,7 @@
 
 <div align="center">
 
-M[YRENTR](https://rentry.co/1usQ_99W9sum)Y
+M[YRENTR](https://rentry.co/1usQ_99W9sum)Y & S[TRAWPAG](https://qwr999sfs.straw.page)E
 
 <div align="center">
 

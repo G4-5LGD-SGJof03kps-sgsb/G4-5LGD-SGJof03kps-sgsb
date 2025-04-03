@@ -4,15 +4,9 @@
 
 <div align="center">
 
-[rentry](https://rentry.co/1usQ_99W9sum) , [strawpage](https://qwr999sfs.straw.page) , [listography](https://listography.com/shenfan/main/2031210304)
-
-<div align="center">
-
 ![после арта с дко смерти](https://64.media.tumblr.com/1a355125f895a5a0f699875df0b8484f/89efc0c143c702a7-3d/s250x400/587a21232a5944fd2b1a2df1d8c7923e58f11fb2.gifv) ![](https://y2k.neocities.org/blinkiez/newbatch/self.gif) ![](https://64.media.tumblr.com/1aaf62e2688319006a9ad2ec19b9ad75/23a36561526f35ce-b1/s250x400/56efeec27c6011cc788030cb92125a951784856c.gifv)
 
 <div align="center"> <img src="https://64.media.tumblr.com/50ac582dcbeb99e71c7f069b22bf69a8/e2f9a80a93a420ee-08/s500x750/12b9eb3918423dd992cb5b0f9c49794d6b6b6c10.pnj"height="95" />
-
-<div align="center"> MY WIFE
 
 <div align="center"> <img src="https://64.media.tumblr.com/d60438cdf8d313e50db3d18362c98d6f/1652b1bb1247a2ba-d7/s2048x3072/718def75d32e878e487a5e6a0aecbadb73066a38.jpg"height="200" /> <img src="https://64.media.tumblr.com/b48d836890bcca4c89872e96bfc5d190/5b0a5ad85a51406e-cc/s1280x1920/c80bab79e290391ef16b993713fb2155d062bcb9.jpg"height="200" /> <img src="https://64.media.tumblr.com/fcaa3b44ef75d8bc66b2d8488819d94b/efa7d0c29861f12c-ce/s2048x3072/1e36cc465db584510fbe652b8384db2679dbd93e.jpg"height="200" />
 
